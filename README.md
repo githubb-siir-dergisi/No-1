@@ -4,10 +4,10 @@ Muhammed Şamil Albayrak
 
 AĞT
 
-el-cennet'ul bâkî
-himmet hâdî
-seyrânımdır
-çok kişilerden
+el-cennet'ul bâkî\n
+himmet hâdî\n
+seyrânımdır\n
+çok kişilerden\n
 mervî
 revâ mı kümmelle
 belki onlara da
