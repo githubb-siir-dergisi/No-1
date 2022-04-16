@@ -8,85 +8,85 @@ el-cennet'ul bâkî<br>
 himmet hâdî<br> 
 seyrânımdır<br> 
 çok kişilerden<br> 
-mervî
-revâ mı kümmelle
-belki onlara da
--kim öldürücü?
-uykuya geçmeden
-kırk el mümit de ölüm var meselâ
-benim en nefret ettiğim şeydir ölüm
-uykusur benim en nefret ettiğim
-yine de buluşmak ülkesidir diye uyusam da zâhir
-adım
-çıksa da uykucuya
-yunus balıkları seyircisidir çünkü bir adım
-benim bir papağan bahçem var ki
-ah yalancıdır şanım
+mervî<br> 
+revâ mı kümmelle<br> 
+belki onlara da<br> 
+-kim öldürücü?<br> 
+uykuya geçmeden<br> 
+kırk el mümit de ölüm var meselâ<br> 
+benim en nefret ettiğim şeydir ölüm<br> 
+uykudur benim en nefret ettiğim<br> 
+yine de buluşmak ülkesidir diye uyusam da zâhir<br> 
+adım<br> 
+çıksa da uykucuya<br> 
+yunus balıkları seyircisidir çünkü bir adım<br> 
+benim bir papağan bahçem var ki<br> 
+ah yalancıdır şanım<br> 
 
-çünkü ortamı çevreyi
-iyice müsaid kılıcı olmadan bu işte vücud
-bak ne kadar kısadır vaktı
-kasım saati vücud
-cennet baki doluyor
-göğsümde bir muska
-muskada esrar kitabesi
-tek tek şukadar ervaha fatiha
-hepsi bir biri gösterici
-ebdân çok fatiha bir gibi
-mezar ziyaret bir
-kabiristan bir
+çünkü ortamı çevreyi<br> 
+iyice müsaid kılıcı olmadan bu işte vücud<br> 
+bak ne kadar kısadır vaktı<br> 
+kasım saati vücud<br> 
+cennet baki doluyor<br> 
+göğsümde bir muska<br> 
+muskada esrar kitabesi<br> 
+tek tek şukadar ervaha fatiha<br> 
+hepsi bir biri gösterici<br> 
+ebdân çok fatiha bir gibi<br> 
+mezar ziyaret bir<br> 
+kabiristan bir<br> 
 
-elbisemi ne zaman kuru temizlemeciye salsam
-yakarsan sultanım vücud
-vücud diye 
-hemen peşi sıra
-al ulan
-ey himmeti güçlü
-ey himmeti kısa
-kuş kelebek ömürlü seni sütun
-ları eğri
-çatısı ürpertili
--yalama olacak diye korkudayım kalbim
+elbisemi ne zaman kuru temizlemeciye salsam<br> 
+yakarsan sultanım vücud<br> 
+vücud diye <br> 
+hemen peşi sıra<br> 
+al ulan<br> 
+ey himmeti güçlü<br> 
+ey himmeti kısa<br> 
+kuş kelebek ömürlü seni sütun<br> 
+ları eğri<br> 
+çatısı ürpertili<br> 
+-yalama olacak diye korkudayım kalbim<br> 
 
-çünkü hani başta dil ve lisan
-ve şifre çözümde yetenek ile dahi
-bir yere getirilirse de
-ondan sonra dahi bu aklın kemali
-yeteciliği de yine bir kemâle
-zira olmaz olur bukyân
-adam eli titrer ne biçim doktor neşter tutmakta
-kendimi kesip biçiyorum
-içimden adam yaratıyorum
-içim kırk doğuyor
+çünkü hani başta dil ve lisan<br> 
+ve şifre çözümde yetenek ile dahi<br> 
+bir yere getirilirse de<br> 
+ondan sonra dahi bu aklın kemali<br> 
+yeteciliği de yine bir kemâle<br> 
+zira olmaz olur bukyân<br> 
+adam eli titrer ne biçim doktor neşter tutmakta<br> 
+kendimi kesip biçiyorum<br> 
+içimden adam yaratıyorum<br> 
+içim kırk doğuyor<br> 
 
-çünkü lisan hakkı yeter olsa da
-ki biliyorsun asla yetmez rabbi zidnî
-yetecisin bir küstahcıldır
-el yetisi gerek
-bilek pekliği
-ben diyici olacak UYUMAM
-yemem
-içmem
-giymem
-dik durmam göğüs kabartmam
-gözümün nehri ileri serindir
-rüzgarım kara kapkara yel
-böyle olmadı
-enayi bir seyyah satıyor gölgem
-cimri bir izci
-kurnaz bir tüccar
-kendi kuyusunu kendi kazanı
-cadı kazanı kum saatı
-elden ele aynı şeyi tavr
-çöl tutuyor avuç avuç
-olmuyor benle siban sûvan
-çantamı sen taşı
-olmaz sen taşı
-taş üstünde balık
-yol ayrımı Mûsa
-ve selam tüm peygambere
-selam meleklere tek tek
-selam arz yerine yollara
-selam kutlu üç avç toprağa
-mekke medine
-bu kabir mezarlığı
+çünkü lisan hakkı yeter olsa da<br> 
+ki biliyorsun asla yetmez rabbi zidnî<br> 
+yetecisin bir küstahcıldır<br> 
+el yetisi gerek<br> 
+bilek pekliği<br> 
+ben diyici olacak UYUMAM<br> 
+yemem<br> 
+içmem<br> 
+giymem<br> 
+dik durmam göğüs kabartmam<br> 
+gözümün nehri ileri serindir<br> 
+rüzgarım kara kapkara yel<br> 
+böyle olmadı<br> 
+enayi bir seyyah satıyor gölgem<br> 
+cimri bir izci<br> 
+kurnaz bir tüccar<br> 
+kendi kuyusunu kendi kazanı<br> 
+cadı kazanı kum saatı<br> 
+elden ele aynı şeyi tavr<br> 
+çöl tutuyor avuç avuç<br> 
+olmuyor benle siban sûvan<br> 
+çantamı sen taşı<br> 
+olmaz sen taşı<br> 
+taş üstünde balık<br> 
+yol ayrımı Mûsa<br> 
+ve selam tüm peygambere<br> 
+selam meleklere tek tek<br> 
+selam arz yerine yollara<br> 
+selam kutlu üç avç toprağa<br> 
+mekke medine<br> 
+bu kabir mezarlığı<br> 
