@@ -1,9 +1,6 @@
 # AĞT 
 Muhammed Şamil Albayrak
 
-
-AĞT
-
 el-cennet'ul bâkî<br> 
 himmet hâdî<br> 
 seyrânımdır<br> 
